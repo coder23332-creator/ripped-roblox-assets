@@ -1,1 +1,1 @@
-Mixture of assets I steal overtime.
+Mixture of steal assets.
